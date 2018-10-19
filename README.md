@@ -6,3 +6,5 @@ Ala ma kota
   Cale te? No o co chodzi cale te? Czy jest ziemia plaska?
     Patryk Osko
   
+Tak.
+Adrianna Milewska
