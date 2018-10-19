@@ -10,3 +10,6 @@ Tak.
 Adrianna Milewska
 
 Pozdrawiam serdecznie!
+
+Całe te zajęcia cudowne.
+Jan Rychlica
