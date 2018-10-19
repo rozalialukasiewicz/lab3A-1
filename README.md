@@ -15,3 +15,4 @@ Pozdrawiam serdecznie!
 Całe te zajęcia cudowne.
 Jan Rychlica
 Miłego dnia! Ola Pietrzak
+Hej, Maria Zoledziewska
