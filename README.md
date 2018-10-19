@@ -2,5 +2,7 @@
 Ala ma kota 
     Artur Mikitiuk
     Czlowiek w cybeprzestrzeni tu byl
-    Głowa w betoniarce
-    
+   
+  Cale te? No o co chodzi cale te? Czy jest ziemia plaska?
+    Patryk Osko
+  
