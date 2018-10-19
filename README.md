@@ -1,7 +1,7 @@
 # lab3A
 Ala ma kota 
     Artur Mikitiuk
-    Czlowiek w cybeprzestrzeni tu byl
+    Czlowiek w cybeprzestrzeni tu byl Sara Zwierzyńska
    
   Cale te? No o co chodzi cale te? Czy jest ziemia plaska?
     Patryk Osko
